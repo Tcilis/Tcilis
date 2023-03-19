@@ -1,1 +1,1 @@
-Computer Science student at the University of Western Macedonia with a passion for coding, exploring new technologies, and building innovative projects. Avid fan of movies, TV shows, and anime, and also enjoys playing games in his free time.
+Hi there, my name is Philip I'am a Computer Science student at the University of Western Macedonia with a passion for coding, exploring new technologies, and building innovative projects. Avid fan of movies, TV shows, and anime, and also enjoys playing games in his free time.
